@@ -1,2 +1,3 @@
-# MCNFLithium
-Fuck off dayrip!
+## Steam IDs
+
+- 76561199013639615 #MCNF
